@@ -1,6 +1,6 @@
 # Co-occurring anthropogenic stressors reduce the timeframe of environmental viability for the world’s coral reefs
 
-<insert link to paper here>
+< insert link to paper here >
 
 Renee O. Setter, Erik C. Franklin, Camilo Mora
 
